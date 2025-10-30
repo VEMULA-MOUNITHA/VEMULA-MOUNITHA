@@ -6,6 +6,6 @@ I am studing Masters in NorthWest Missouri State University.
 
 I love listening music.
 
-My favorite actors are Harshad Chopda and Pranali Rathod.
+My favorite actor is Harshad Chopda.
 
 I love to spend time with my family
